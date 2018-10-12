@@ -1,0 +1,1 @@
+# c-t-r-sekizli-bilgi-i-lem-makinesinin
